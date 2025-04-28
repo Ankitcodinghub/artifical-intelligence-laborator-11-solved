@@ -1,0 +1,1 @@
+# artifical-intelligence-laborator-11-solved
